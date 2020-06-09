@@ -1,0 +1,1 @@
+# 200610-3x3-macau-map-magicavoxel
